@@ -1,2 +1,2 @@
 # Side_Hussle
-This repo will contain random projects that turn out pretty share-worthy. 
+a.k.a im pretty proud of these :)
